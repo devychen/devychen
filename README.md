@@ -4,4 +4,4 @@
 - Previously make a living by working in 🎮 game marketing and 🎬 TV production.
 - 🇬🇧 Univ. Oxford 2019 Graduates, 🇬🇧 Univ. Manchester 2018 Graduates.
 - Fun fact: a Kendo player, a guitar player 🎸. And I have a lovely English Shorthair 🐱
-- 💬 Confident in speaking the following languages: Chinese > English > Japanese. 
+- 💬 Confident in speaking the following languages: Chinese > English > Japanese > German. 
